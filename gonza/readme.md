@@ -1,1 +1,0 @@
-· Parcial 01-Electiva1
